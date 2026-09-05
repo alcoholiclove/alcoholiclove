@@ -27,6 +27,12 @@
 *“Time waits for no one. It delivers all equally to the same end.”*  
  you can call me shio or whatever you wanna call me, just be mindful of the nicknames you'll give me 
 
+ and please DNI if you're insensitive! or even problematic. anyone who crosses a line or boundaries will be blocked no matter how close we are
+
+ and please tell me straight at my atabook if I somehow interacted with a problematic persom
+  
+ aside that, I'm friendly and do not ever think I'm unapproachable! but I'll be very awkward;;
+
 <br>
 
 <!-- 4. TECH STACK / ARSENAL HEADER PNG -->
